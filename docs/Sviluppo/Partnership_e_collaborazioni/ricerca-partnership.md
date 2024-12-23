@@ -1,0 +1,1 @@
+# Ricerca di partnership strategiche

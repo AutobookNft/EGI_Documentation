@@ -1,0 +1,1 @@
+# Trasferimento esterno degli EGI
